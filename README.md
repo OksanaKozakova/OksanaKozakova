@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @OksanaKozakova
+- 👀 I’m interested in IT Recruiting 
+- 📫 How to reach me e-mail: okssss@ya.ru, oksanakozakova893@gmail.com
